@@ -1,0 +1,2 @@
+# Biodata-Siswa-10-Rpl-1
+READING FOR MY BIODATA 10 RPL 1
